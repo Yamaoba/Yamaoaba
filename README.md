@@ -1,4 +1,4 @@
-# Hi Everyone!, I', Yamaoba 👋
+# Hi Everyone! I'm Yamaoba 👋
 
 💻 Tech Enthusiast | 🚀 Exploring the world of coding and innovation.
 🎮 Gamer who loves diving into new adventures, both on screen and in life.
